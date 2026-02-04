@@ -39,7 +39,7 @@ That's it! No configuration needed. Just pure, peaceful flying. 🕊️
 
 ## 🔍 Keywords
 
-Disable flight music FiveM • Stop airplane music GTA V • Turn off plane interior music • Remove aircraft cinematic sound • FiveM no flying music • Disable flight theme FiveM • GTA V RP no plane music • FiveM peaceful flights
+Disable flight music FiveM, Stop airplane music GTA V, Turn off plane interior music, Remove aircraft cinematic sound, FiveM no flying music, Disable flight theme FiveM, GTA V RP no plane music, FiveM peaceful flights
 
 ## 💖 Support
 
